@@ -1,0 +1,1 @@
+Eu estou congelando de frio! Certamente, a pessoa está sentindo muito frio, mas ela não está, de fato, congelando. Ela apenas utilizou a hipérbole para enfatizar o frio que sente. Por isso, a hipérbole também costuma ser um exagero óbvio, ou seja, usa-se essa linguagem figurada de modo perceptível.
